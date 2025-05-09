@@ -1,4 +1,4 @@
-# # Not all room are free, room are listed for specific section, feel free to explore!  ----HAPPY HACKING!
+# # Not all room are free, rooms are listed for specific section, feel free to explore!  ----HAPPY HACKING!
 
 * * *
 
